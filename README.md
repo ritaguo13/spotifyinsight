@@ -1,3 +1,16 @@
 # spotifyinsight
 
 ![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_AZaORCBC5EF81vc3gpSeRw.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_9RRYbJfdqJ6kstfSQKtlHw.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_T-UqHyPWw_fXJ86ImW7t0Q.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_mZDoLwVas-M45w3SDyhmyg.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_EfMn1_XwO5ckEF0MNifb0g.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_Uv3vdD1ISUP2TqhhEQNZIw.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_EnabUsKai51OCY8Qu8GNtQ.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_poLAB7LoDCkUd2ftd-Dvjg.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_f---2clvb3juBMneck1HBQ.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_-4Nm6Jsp-c3_CvOUTH4XsA.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_QpzMnF6aAaVKe9y3F_lXhA.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_alP1jK8TBH-Qbut3AgbYww.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_mBvTBafFQ1RKTjj8kJxojw.png?raw=true)
+![Image](https://github.com/ritaguo13/spotifyinsight/blob/master/1_UjLyY34EM48zKSmRZdnHMA.png?raw=true)
